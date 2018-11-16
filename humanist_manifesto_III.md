@@ -22,5 +22,5 @@ This document is part of an ongoing effort to manifest in clear and positive ter
 
 Thus engaged in the flow of life, we aspire to this vision with the informed conviction that humanity has the ability to progress toward its highest ideals. The responsibility for our lives and the kind of world in which we live is ours and ours alone.
 
-Humanist Manifesto is a trademark of the American Humanist Association
-© 2003 American Humanist Association
+*Humanist Manifesto is a trademark of the American Humanist Association
+© 2003 American Humanist Association*
