@@ -18,7 +18,7 @@ This document is part of an ongoing effort to manifest in clear and positive ter
 
 **Working to benefit society maximizes individual happiness.** Progressive cultures have worked to free humanity from the brutalities of mere survival and to reduce suffering, improve society, and develop global community. We seek to minimize the inequities of circumstance and ability, and we support a just distribution of nature’s resources and the fruits of human effort so that as many as possible can enjoy a good life.
 
-**Humanists are concerned for the well being of all, are committed to diversity, and respect those of differing yet humane views.** We work to uphold the equal enjoyment of human rights and civil liberties in an open, secular society and maintain it is a civic duty to participate in the democratic process and a planetary duty to protect nature’s integrity, diversity, and beauty in a secure, sustainable manner.
+Humanists are concerned for the well being of all, are committed to diversity, and respect those of differing yet humane views. We work to uphold the equal enjoyment of human rights and civil liberties in an open, secular society and maintain it is a civic duty to participate in the democratic process and a planetary duty to protect nature’s integrity, diversity, and beauty in a secure, sustainable manner.
 
 Thus engaged in the flow of life, we aspire to this vision with the informed conviction that humanity has the ability to progress toward its highest ideals. The responsibility for our lives and the kind of world in which we live is ours and ours alone.
 
